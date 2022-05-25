@@ -28,13 +28,12 @@ Stiamo facendo del nostro meglio nel caricare nuovi post con le loro traduzioni 
 # In conclusione
 Speriamo che siate eccitati per i prossimi contenuti che arriveranno qui e per il futuro di Puroto. Daremo il massimo per lavorare il più vicino possibile con voi, la nostra community ed informarvi sul progetto! Unitevi a noi per far diventare la comunità furry fantastica!
 
-
 ### Ci auguriamo che ti unirai a noi per il prossimo post!
 
 ---
 
 ### Crediti:
-- Scrittura iniziale: [Stax](https://twitter.com/staxthefox) 
+- Scrittura iniziale: [Stax](https://twitter.com/staxthefox)
 - Traduzione Inglese: [Stax](https://twitter.com/staxthefox) 
 - Traduzione Tedesca: [Stax](https://twitter.com/staxthefox) 
 - Traduzione Olandese: (non ancora terminata)
